@@ -1,4 +1,4 @@
-# Afalos Emergence - The emergence of Afalos
+# Afalos's Emergence - The emergence of Afalos
 
 Your last time to get involved!
 
